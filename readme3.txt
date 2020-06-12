@@ -9,3 +9,6 @@ This is my contribution...
 Haw Haw Haaawwwwww!
 Merry Christmas!
 That was Shuhaib btw, Here You Go i Made my contribution
+
+Thalha here... Orewa kono sekai ni ichiban aho-des... Gintama is best... 
+-Anti-Western Shows Organization
